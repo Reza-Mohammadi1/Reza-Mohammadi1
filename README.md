@@ -9,7 +9,7 @@ Isfahan, Iran • 20 years old
 - **GitHub:** [Reza-Mohammadi1](https://github.com/Reza-Mohammadi1)
 - **Telegram:** [@Reza19814](https://t.me/Reza19814)
 - **Instagram:** [@reza6_m7](https://www.instagram.com/reza6_m7/)
-- **linkedin:** [reza-mohammadi-dev]([(https://linkedin.com/in/reza-mohammadi-dev))
+- **linkedin:** [reza-mohammadi-dev](https://linkedin.com/in/reza-mohammadi-dev)
 
 ---
 
